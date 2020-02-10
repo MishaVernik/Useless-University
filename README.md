@@ -1,0 +1,2 @@
+# Useless-University
+All shit
